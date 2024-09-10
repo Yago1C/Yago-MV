@@ -13,4 +13,4 @@ Meu nome é Yago
 @gawky007
 
 ![](https://media.tenor.com/HoXg2JXLbisAAAAi/capple.gif)
-![](https://media1.tenor.com/m/WpBHdE0ERiYAAAAC/dante-devil-may-cry-dmc3spinning.gif)
+
